@@ -4,7 +4,7 @@
 
 -I play the violin in the ISU Symphony Orchestra🎻
 
--I have interned and Spirit AeroSystems and NASA Langley Research Center💫
+-I have interned at Spirit AeroSystems and NASA Langley Research Center💫
 
 -I have a pet talking Yellow-Naped Amazon parrot🦜
 
